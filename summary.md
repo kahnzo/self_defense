@@ -11,12 +11,15 @@ Please be aware that some videos illustrating self defense situations and techni
 
 ## Prevention
 - Looking out for one another
+  
 The person that helps you get away will not necessarily be the person that you expect.  Sometimes it's a supermodel in an airport.
 
 - De-escalation
+  
 Knowing their name.  Addressing them by their name.  Humanizing speech.
  
 - Situational Awareness
+  
 Having situational awareness is an important preventative skill, but even the most well trained, highest level, self-defense and martial arts practitioners are vulnerable to attacks that they just don’t see coming or the behavior of people that is unexpected.
 
 Be aware of the exits, the nearest location of where people would be expected to be, who might have a professional role as security or management.  I witnessed a dangerous situation at the Stanley Hotel and let the management know of the situation. They had been monitoring the situation all along and where prepared for the potential for escalation in the establishment.  Unfortunate, they had little control over what might happen in the parking lot.
