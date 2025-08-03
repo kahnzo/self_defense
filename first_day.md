@@ -50,22 +50,38 @@ If you want to use martial arts for self defense, you will have to drill them.  
 - Combat base
 - Standing up in base
 - Managing distance before fight
-- Manageing distance during fight
+- Managing distance during fight
 
 ### Falling Safely
 - Back Break Fall
 
 ### Breaking Grips
 - Standard Wrist Release
+  - one on one
+  - two on two
+  - two on one
 - Inverted Wrist Release
-
+  - one on one
+  - two on two
+  - two on one
 ### Getting out chokes
 - Rape choke standing
+ 
 - Rape choke standing against wall
-- Mounted rape choke
-
+  - two hands
+  - one hand
+- Rear Naked Choke from hands and knees
+  - two one one, load, roll, butt in air
 ### Hair pulling
+- hair pulling from front
+  - flatten hand, stand up in base, pull into guard
+  - flatten hand, stand up in base, elbow
+  - flatten hand, two hands on ankle, head to below knee or shoulder below knee
 - Hair pulled from behind
+
+### Closed Guard
+use legs to bring in
+
 
 ### Offensive Chokes
 - Front cross choke - VIDEO
