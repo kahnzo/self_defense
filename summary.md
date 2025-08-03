@@ -11,12 +11,20 @@ Be careful, though.  Some of the videos illustrating self defense situations and
 
 ## Prevention
 - Looking out for one another
+The person that helps you get away will not necessarily be the person that you expect.  Sometimes it's a supermodel in an airport.
+
 - De-escalation
+Knowing their name.  Addressing them by their name.  Humanizing speech.
+ 
 - Situations Awareness
+
 - Confidence
 
+- Communication
+Setting up the ground rules of your interaction.  Discussing consent and expectations.  
+
 ## Mindset in a dangerous situation
-- Fight, flight, freeze
+- Instintial responses including gight, flight, freeze
 - Breathing
 - Strategic Thinking
 - Using your voice
@@ -41,6 +49,13 @@ If you want to use martial arts for self defense, you will have to drill them.  
 
 ## Use only after some training or as a last resort
 Striking, in general, instantly escalates the situation.  If escalation is unavoidable then what you do has to disable the person.  Bite, eye gouge, grabbing and twisting genitals are all fair game.  Some of these techniques aren't going to do anything but piss off your attacker, so use with caution.  A bite, for example, might be used to help you break a grip, if your techniques aren't working.
+
+This you can learn on your own, but we also recommend extreme caution and question the effectiveness when your aren't well trained
+- Groin strikes
+- Eye Gouges
+- Headbutts
+- Joint Locks
+- 
 
 
 
