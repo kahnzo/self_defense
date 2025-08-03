@@ -9,6 +9,12 @@ One of the things that we struggled with was whether or not to do any striking t
 
 Please be aware that some videos illustrating self defense situations and techniques can be very triggering.
 
+## Mindset in a dangerous situation
+- Instintial responses including fight, flight, freeze
+- Breathing
+- Strategic Thinking
+- Using your voice
+
 ## Prevention
 ### Look Out for Each Other
   
@@ -28,6 +34,14 @@ Having situational awareness is an important preventative skill, but even the mo
 
 Be aware of the exits, the nearest location of where people would be expected to be, who might have a professional role as security or management. Be aware of the hours of the business near your location and think about where you would go if you were attacked.
 
+Don't use your cell phone in a dangerous area including parking lot.
+
+hotel room look for weapons
+
+lighting
+
+awareness of suspicious people
+
 ### Confidence
 In a dangerous situation, you'd like to avoid reacting in a purely instinctual way; fight, flight, freeze. Have a strategy and mindset to help you get out of that situation. Trust your instincts. Your body will sometimes tell you that you aren't safe before your mind does. If you're wrong, that's ok, at least you're safe.
 
@@ -39,11 +53,7 @@ Training can give you a false sense of confidence. In the actual situation, it's
 
 Setting up the ground rules of your interaction.  Discussing consent and expectations.  
 
-## Mindset in a dangerous situation
-- Instintial responses including fight, flight, freeze
-- Breathing
-- Strategic Thinking
-- Using your voice
+
 
 ## Martial Arts 1st Day Techniques
 If you want to use martial arts for self defense, you will have to drill them.  There is no way to learn these techniques in one class.  Therefore we are limiting this class to a short list of techniques.
@@ -64,6 +74,11 @@ If you want to use martial arts for self defense, you will have to drill them.  
   - one on one
   - two on two
   - two on one
+
+### Straddle
+- Wrist lock
+  - grab fingers, wrist lock, talk the whole time
+
 ### Getting out chokes
 - Rape choke standing
  
@@ -72,6 +87,7 @@ If you want to use martial arts for self defense, you will have to drill them.  
   - one hand
 - Rear Naked Choke from hands and knees
   - two one one, load, roll, butt in air
+
 ### Hair pulling
 - hair pulling from front
   - flatten hand, stand up in base, pull into guard
