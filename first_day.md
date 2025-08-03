@@ -33,6 +33,8 @@ In a dangerous situation, you'd like to avoid reacting in a purely instinctual w
 
 Confidence in self defense techniques will help you to know when you don't have to use them. Confidence that comes from training:  kicking the butt of someone twice your size is not out of reach for someone with training in a variety of martial arts.  But self defense is not the focus of many marital arts.  Competitions have rules that don't apply in a street fight, or a fight for your life.
 
+Training can give you a false sense of confidence. In the actual situation, it's training, drills, and sparring that will completely change the situation.
+
 ### Communication
 
 Setting up the ground rules of your interaction.  Discussing consent and expectations.  
@@ -57,7 +59,15 @@ If you want to use martial arts for self defense, you will have to drill them.  
 - Standard Wrist Release
 - Inverted Wrist Release
 
-### Chokes
+### Getting out chokes
+- Rape choke standing
+- Rape choke standing against wall
+- Mounted rape choke
+
+### Hair pulling
+- Hair pulled from behind
+
+### Offensive Chokes
 - Front cross choke - VIDEO
 - Rear naked choke
 
@@ -69,3 +79,6 @@ This you can learn on your own, but we also recommend extreme caution and questi
 - Eye Gouges
 - Headbutts
 - Joint Locks
+
+## Self Defense Online Resources
+Gracie Defense 
