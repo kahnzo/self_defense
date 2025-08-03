@@ -47,6 +47,8 @@ Setting up the ground rules of your interaction.  Discussing consent and expecta
 If you want to use martial arts for self defense, you will have to drill them.  There is no way to learn these techniques in one class.  Therefore we are limiting this class to a short list of techniques.
 - Combat base
 - Standing up in base
+- Managing distance before fight
+- Manageing distance during fight
 
 ### Falling Safely
 - Back Break Fall
