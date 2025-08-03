@@ -1,7 +1,7 @@
 # Self Defense Fundamentals
 
 ## Introductory Class
-Techniques must be drilled and practiced to be effective.  You will not learn good self defense in a 3 hour class.  We hope to give you a taste of self defense techniques and to encourage your to continue your learning journey.
+Self defense techniques must be drilled and practiced to be effective.  You will not learn good self defense in a 3 hour class.  We hope to give you a taste of self defense techniques and to encourage your to continue your learning journey.
 
 Some situations are not preventable, no matter what your training, your mindset, or your ability to de-escalate the situation.  All you can do is to try to prepare yourself for the best.
 
@@ -14,21 +14,19 @@ Please be aware that some videos illustrating self defense situations and techni
   
 It's very easy to default the idea that you are the only one that will take care of you. Strangely, the person that ends up helping you in a dangerous situation, is often the person that you least expect.
 
-You will not learn any of the techniques that we teach today without practice. Find a training partner. Practice what we learned today with them regularly.
+You will not learn any of the techniques that we teach today without practice. Find a training partner. Practice what we learned today with them regularly. Just watching a video or reviewing the technique will not get it into your muscle memory.
 
 ### De-escalation
   
-We will not be covering de-escalation in detail in this class, but do want to mention it.  Ultimately, you will have to use your own judgement as to what might effectively de-escalate the situation and also be very aware of when it is not working.  
+De-escalation can help to prevent the need for self defense. Ultimately, you will have to use your own judgement as to what might effectively de-escalate the situation and also be very aware of when it is not working.  
 
-Somne examples of things that can help to de-escalate a confrontation include knowing and using their name to address them.  Use humanizing speech, like mentioning your family or plans.
+De-escalate a confrontation can include knowing and calling them by their name. Try to use humanizing speech, like mentioning your family or plans. 
  
 ### Situational Awareness
   
 Having situational awareness is an important preventative skill, but even the most well trained, highest level, self-defense and martial arts practitioners are vulnerable to attacks that they just don’t see coming or the behavior of people that is unexpected.
 
-Be aware of the exits, the nearest location of where people would be expected to be, who might have a professional role as security or management.  I witnessed a dangerous situation at the Stanley Hotel and let the management know of the situation. They had been monitoring the situation all along and where prepared for the potential for escalation in the establishment.  Unfortunate, they had little control over what might happen in the parking lot.
-
-Take note of open businesses near your location.
+Be aware of the exits, the nearest location of where people would be expected to be, who might have a professional role as security or management. Be aware of the hours of the business near your location and think about where you would go if you were attacked.
 
 ### Confidence
 In a dangerous situation, you'd like to avoid reacting in a purely instinctual way; fight, flight, freeze. Have a strategy and mindset to help you get out of that situation. Trust your instincts. Your body will sometimes tell you that you aren't safe before your mind does. If you're wrong, that's ok, at least you're safe.
