@@ -1,7 +1,7 @@
 # Self Defense Fundamentals
 
 ## Introductory Class
-Techniques must be drilled and practices to be effective.  There is no way to l#earn self defense in a 3 hour class.  The hope in this class is to give you a taste of self defense techniques and to encourage your to continue your learning journey.
+Techniques must be drilled and practices to be effective.  There is no way to learn self defense in a 3 hour class.  The hope in this class is to give you a taste of self defense techniques and to encourage your to continue your learning journey.
 
 Some situations are not preventable, no matter what your training, your mindset, or your ability to de-escalate the situation.  All you can do is to try to prepare yourself for the best.
 
