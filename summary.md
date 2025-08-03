@@ -10,17 +10,19 @@ One of the things that we struggled with was whether or not to do any striking t
 Please be aware that some videos illustrating self defense situations and techniques can be very triggering.
 
 ## Prevention
-- Look out for one another
+### Look Out for Each Other
   
-It's very easy to default the idea that you are the only one that will take care of you. Strangely, the person that ends up helping you in a dangerous situation, is often the person that you least expect.  
+It's very easy to default the idea that you are the only one that will take care of you. Strangely, the person that ends up helping you in a dangerous situation, is often the person that you least expect.
 
-- De-escalation
+You will not learn any of the techniques that we teach today without practice. Find a training partner. Practice what we learned today with them regularly.
+
+### De-escalation
   
 We will not be covering de-escalation in detail in this class, but do want to mention it.  Ultimately, you will have to use your own judgement as to what might effectively de-escalate the situation and also be very aware of when it is not working.  
 
 Somne examples of things that can help to de-escalate a confrontation include knowing and using their name to address them.  Use humanizing speech, like mentioning your family or plans.
  
-- Situational Awareness
+### Situational Awareness
   
 Having situational awareness is an important preventative skill, but even the most well trained, highest level, self-defense and martial arts practitioners are vulnerable to attacks that they just don’t see coming or the behavior of people that is unexpected.
 
@@ -28,12 +30,12 @@ Be aware of the exits, the nearest location of where people would be expected to
 
 Take note of open businesses near your location.
 
-- Confidence
+### Confidence
 In a dangerous situation, you'd like to avoid reacting in a purely instinctual way; fight, flight, freeze. Have a strategy and mindset to help you get out of that situation. Trust your instincts. Your body will sometimes tell you that you aren't safe before your mind does. If you're wrong, that's ok, at least you're safe.
 
 Confidence in self defense techniques will help you to know when you don't have to use them. Confidence that comes from training:  kicking the butt of someone twice your size is not out of reach for someone with training in a variety of martial arts.  But self defense is not the focus of many marital arts.  Competitions have rules that don't apply in a street fight, or a fight for your life.
 
-- Communication
+### Communication
 
 Setting up the ground rules of your interaction.  Discussing consent and expectations.  
 
