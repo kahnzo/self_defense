@@ -10,7 +10,7 @@ One of the things that we struggled with was whether or not to do any striking t
 Please be aware that some videos illustrating self defense situations and techniques can be very triggering.
 
 ## Mindset in a dangerous situation
-- Instintial responses including fight, flight, freeze
+- Instinctual responses including fight, flight, freeze
 - Breathing
 - Strategic Thinking
 - Using your voice
