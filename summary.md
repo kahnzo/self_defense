@@ -10,13 +10,15 @@ One of the things that we struggled with was whether or not to do any striking t
 Please be aware that some videos illustrating self defense situations and techniques can be very triggering.
 
 ## Prevention
-- Looking out for one another
+- Look out for one another
   
-The person that helps you get away will not necessarily be the person that you expect.  Sometimes it's a supermodel in an airport.
+It's very easy to default the idea that you are the only one that will take care of you. Strangely, the person that ends up helping you in a dangerous situation, is often the person that you least expect.  
 
 - De-escalation
   
-Knowing their name.  Addressing them by their name.  Humanizing speech.
+We will not be covering de-escalation in detail in this class, but do want to mention it.  Ultimately, you will have to use your own judgement as to what might effectively de-escalate the situation and also be very aware of when it is not working.  
+
+Somne examples of things that can help to de-escalate a confrontation include knowing and using their name to address them.  Use humanizing speech, like mentioning your family or plans.
  
 - Situational Awareness
   
@@ -32,6 +34,7 @@ In a dangerous situation, you'd like to avoid reacting in a purely instinctual w
 Confidence in self defense techniques will help you to know when you don't have to use them. Confidence that comes from training:  kicking the butt of someone twice your size is not out of reach for someone with training in a variety of martial arts.  But self defense is not the focus of many marital arts.  Competitions have rules that don't apply in a street fight, or a fight for your life.
 
 - Communication
+
 Setting up the ground rules of your interaction.  Discussing consent and expectations.  
 
 ## Mindset in a dangerous situation
@@ -55,8 +58,6 @@ If you want to use martial arts for self defense, you will have to drill them.  
 ### Chokes
 - Front cross choke - VIDEO
 - Rear naked choke
-- 
-
 
 ## Use only after some training or as a last resort
 Striking, in general, instantly escalates the situation.  If escalation is unavoidable then what you do has to disable the person.  Bite, eye gouge, grabbing and twisting genitals are all fair game.  Some of these techniques aren't going to do anything but piss off your attacker, so use with caution.  A bite, for example, might be used to help you break a grip, if your techniques aren't working.
@@ -66,8 +67,3 @@ This you can learn on your own, but we also recommend extreme caution and questi
 - Eye Gouges
 - Headbutts
 - Joint Locks
-- 
-
-
-
-
